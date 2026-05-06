@@ -1,4 +1,4 @@
-
+grow a garden Script custom is the best grow a garden Script, featuring speed and no cooldown. Safe and powerful for all your needs.
 
 
 
